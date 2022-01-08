@@ -8,6 +8,6 @@
 
 📫 You can reach me on bitbot@bitbot.com.au or through https://www.bitbot.com.au or on [Whirlpool](https://forums.whirlpool.net.au/user/739655).
 
-💰 If you'd like to thank me for any of my work that benefited you, any donations made in my apps, to [buy me a coffee](https://www.buymeacoffee.com/bitbot) or my crypto wallet (@bitbotsoftware on Solana) would be greatly appreciated.
+💰 If you'd like to thank me for any of my work that benefited you in some way, any donations would be greatly appreciated and can be made inside my apps, through [buy me a coffee](https://www.buymeacoffee.com/bitbot) or through my [crypto wallet](https://unstoppabledomains.com/d/rushworth.crypto) .
 
 🙌 Have a great day!
